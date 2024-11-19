@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @Filimartis
 - 👀 I’m interested in Cyber Security
-- 🌱 I’m currently learning Cyber Security
 - 💞️ I’m looking to collaborate on Cyber Security
 - 📫 How to reach me: Instagram and Facebook = @Filimartis 
 
